@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Kkvyas12
+- 👋 Hi, I’m Krishna Vyas.
 - 👀 I’m interested in Cyber Security domain.
 - 🌱 I’m currently learning B.Sc IT (Cyber Security).
 - 📫 How to reach me on linkedin:- https://www.linkedin.com/in/krishnavyas12
